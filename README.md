@@ -9,3 +9,5 @@ Eu me chamo Vitor
 
 ### Para mais informações!  🙃
 Entrar em contato com vitor.rinaldi.santos@escola.pr.gov.br
+
+![](https://www.gamepur.com/wp-content/uploads/2020/10/19072325/Klee_best_Build_Genshin_Impact.jpg)
